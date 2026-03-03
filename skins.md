@@ -1,7 +1,7 @@
  # gnahus/milosz osu skins
 
-## [twitch milosz](https://www.twitch.tv/milosz)
-## [twitch gnahus](https://www.twitch.tv/gnahus_)
+## [milosz](https://www.twitch.tv/milosz)
+## [gnahus](https://www.twitch.tv/gnahus_)
 
 
 # [bomba malisz skin from 2023](https://drive.google.com/file/d/1GGRBCYQ23uN6vKcXKvDlCZVKtv-U-Hip/view?usp=sharing)
