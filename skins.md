@@ -13,3 +13,6 @@
 
 # [Rafis Tripplestacked Hitcircle Upscaled](https://drive.google.com/file/d/1kCgpWqYA1_6WZkPR9mZMDJX0Q4KaLbK0/view?usp=sharing)
 ![image](https://i.imgur.com/b0jW76g.jpeg)
+
+# [rektygon](https://drive.google.com/file/d/1oFe9BXba4QwEZ9zvtEAchfHYvhN6FV8l/view?usp=sharing)
+![image](https://i.imgur.com/mO4VjFK.png)
